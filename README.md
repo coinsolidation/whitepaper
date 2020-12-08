@@ -1,2 +1,2 @@
 # whitepaper
-Coming Soon....December 2020
+Coming Soon....January 31, 2020
